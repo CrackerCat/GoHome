@@ -1,5 +1,13 @@
 fast find me，快速找到回家的路，持续更新中......
+Windows安装包：https://wwa.lanzoui.com/irkG0evjs7e
 
+Macbook安装包：https://wwa.lanzous.com/icychevlcsb
+
+安卓安装包：https://wwx.lanzoui.com/ioSDZqf305e
+
+苹果免翻：https://1024shen.com/archives/2891
+
+个人博客地址：https://1024shen.com
 ## 1024CL,91免翻地址： ##
 下面地址不再持续更新，建议下载使用EXE程序获取地址，那是一种一劳永逸的方法。
 # 增加了更新91免翻地址功能：
