@@ -11,13 +11,14 @@ windows界面：
 ![](https://p1.pstatp.com/origin/pgc-image/bbe673fa348845339d7c1d43c1df8643)
 macbook界面：
 ![](https://p1.pstatp.com/origin/pgc-image/f0998818db534b6a8988befd37df04a1)
+安卓界面：
+![](https://p1.pstatp.com/origin/pgc-image/14a710b8759545819f36a8a1b80a73a9)
 
-Windows安装包：https://wwa.lanzous.com/irkG0evjs7e
-windows用户一定要看使用教程：https://1024shen.com/archives/533
+Windows安装包：https://wwa.lanzoui.com/irkG0evjs7e
 
 Macbook安装包：https://wwa.lanzous.com/icychevlcsb
 
-安卓安装包：https://1024shen.com/archives/2888
+安卓安装包：https://wwx.lanzoui.com/ioSDZqf305e
 
 苹果免翻：https://1024shen.com/archives/2891
 
