@@ -12,13 +12,13 @@ fast find me，快速找到回家的路，持续更新中......
 安卓界面：
 ![](https://p1.pstatp.com/origin/pgc-image/9725ae49842d4982a028f923ff0e1e9f)
 
-Windows安装包：https://wwa.lanzoui.com/irkG0evjs7e
+安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
 
-Macbook安装包：https://wwa.lanzous.com/icychevlcsb
+安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
 
-安卓安装包：https://wwx.lanzoui.com/ioSDZqf305e
+安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
 
-苹果免翻：https://1024shen.com/archives/2891
+安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
 
 个人博客地址：https://1024shen.com
 
