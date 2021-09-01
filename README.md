@@ -1,6 +1,5 @@
 fast find me，快速找到回家的路，持续更新中......
-
-安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
+安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
 ## 1024CL,91免翻地址： ##
 下面地址不再持续更新，建议下载使用EXE程序获取地址，那是一种一劳永逸的方法。
@@ -12,13 +11,9 @@ fast find me，快速找到回家的路，持续更新中......
 安卓界面：
 ![](https://p1.pstatp.com/origin/pgc-image/9725ae49842d4982a028f923ff0e1e9f)
 
-安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
+安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
-安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
-
-安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
-
-安卓安装包：https://wwx.lanzoui.com/ivZGBssu47c
+安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
 个人博客地址：https://1024shen.com
 
