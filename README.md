@@ -1,6 +1,11 @@
 fast find me，快速找到回家的路，持续更新中......
 安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
+
+1024面翻回家：<a href="https://cl.do56.xyz/index.php?u=585098&ext=ba2d3">1024地址1</a> 
+
+91Pr面翻回家： <a href="https://f1113.wonderfulday27.live/index.php">91自拍站</a>	
+
 ## 1024CL,91免翻地址： ##
 下面地址不再持续更新，建议下载使用EXE程序获取地址，那是一种一劳永逸的方法。
 # 增加了更新91免翻地址功能：
