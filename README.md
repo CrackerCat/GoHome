@@ -13,12 +13,17 @@ fast find me，快速找到回家的路，持续更新中......
 想获得邀请码的可以看这里：https://1024shen.com/archives/category/1024vip/qiangmazi
 
 ## 开发了一个带界面的EXE程序，打开程序就会自动获取三个免翻地址，欢迎使用:
+
+Windows![4561631779025_ pic_hd](https://user-images.githubusercontent.com/64306726/133573559-804c7d58-fb11-4806-abb2-fefa6f50aaa8.jpg)
+界面：
+![](https://p1.pstatp.com/origin/pgc-image/5b1fce82a056446393be86d36b4b7ee9)
+windows安装包：https://github.com/1024dasehn/GoHome/releases/download/1024V23/1024.exe
+
 安卓界面：
 ![](https://p1.pstatp.com/origin/pgc-image/9725ae49842d4982a028f923ff0e1e9f)
+安卓安装包：https://github.com/1024dasehn/GoHome/releases/download/1024V23/1024.V23.apk
 
-安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
-安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
 
 ## 之所以能持续更新 ##
