@@ -1,8 +1,8 @@
 fast find me，快速找到回家的路，持续更新中......
 
-安卓安装包：https://github.com/1024dasehn/GoHome/releases/download/1024V23/1024.V23.apk
+安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
-windows安装包：https://github.com/1024dasehn/GoHome/releases/download/1024V23/1024.exe
+windows安装包：https://wwx.lanzoui.com/iRxC5uwyt6b
 
 1024面翻回家：<a href="https://cl.do56.xyz/index.php?u=585126&ext=26a4d">1024地址1</a> 
 
@@ -11,11 +11,11 @@ windows安装包：https://github.com/1024dasehn/GoHome/releases/download/1024V2
 ## 开发了一个带界面的EXE程序，打开程序就会自动获取三个免翻地址，欢迎使用:
 Windows界面：
 ![](https://p1.pstatp.com/origin/pgc-image/5b1fce82a056446393be86d36b4b7ee9)
-windows安装包：https://github.com/1024dasehn/GoHome/releases/download/1024V23/1024.exe
+windows安装包：https://wwx.lanzoui.com/iRxC5uwyt6b
 
 安卓界面：
 ![](https://p1.pstatp.com/origin/pgc-image/9725ae49842d4982a028f923ff0e1e9f)
-安卓安装包：https://github.com/1024dasehn/GoHome/releases/download/1024V23/1024.V23.apk
+安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
 ## 之所以能持续更新 ##
 是因为写了一个程序，能自动爬取1024免翻地址，可以持续不断更新，只要1024不倒，就可以一直更新！如果喜欢，请star我哦
