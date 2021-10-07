@@ -2,7 +2,7 @@ fast find me，快速找到回家的路，持续更新中......
 
 安卓安装包：https://wwx.lanzoui.com/iFKcRtafx1i
 
-windows安装包：https://wwx.lanzoui.com/iRxC5uwyt6b
+windows安装包：https://wwx.lanzoui.com/iXNFpuz0nyh
 
 1024面翻回家：<a href="https://cl.do56.xyz/index.php?u=585098&ext=ba2d3">1024地址1</a> 
 
@@ -11,7 +11,7 @@ windows安装包：https://wwx.lanzoui.com/iRxC5uwyt6b
 ## 开发了一个带界面的EXE程序，打开程序就会自动获取三个免翻地址，欢迎使用:
 Windows界面：
 ![](https://p1.pstatp.com/origin/pgc-image/5b1fce82a056446393be86d36b4b7ee9)
-windows安装包：https://wwx.lanzoui.com/iRxC5uwyt6b
+windows安装包：https://wwx.lanzoui.com/iXNFpuz0nyh
 
 安卓界面：
 ![](https://p1.pstatp.com/origin/pgc-image/9725ae49842d4982a028f923ff0e1e9f)
