@@ -4,7 +4,7 @@ fast find me，快速找到回家的路，持续更新中......
 
 windows安装包：https://wwx.lanzoui.com/iXNFpuz0nyh
 
-1024面翻回家：<a href="https://cl.do56.xyz/index.php?u=585098&ext=ba2d3">1024地址1</a> 
+1024面翻回家：<a href="https://cl.vkp2.icu/index.php?u=585098&ext=ba2d3">1024地址1</a> 
 
 91Pr面翻回家： <a href="https://f1113.wonderfulday27.live/index.php">91自拍站</a>	
 
