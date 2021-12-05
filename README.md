@@ -1,6 +1,6 @@
 fast find me，快速找到回家的路，持续更新中......
 
-安卓安装包：https://wwx.lanzoui.com/iEysOw4wsxe
+安卓安装包：https://wwx.lanzoux.com/ifnPAw8beje
 
 windows安装包：https://wwx.lanzoui.com/iXNFpuz0nyh
 
