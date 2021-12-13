@@ -1,6 +1,6 @@
 fast find me，快速找到回家的路，持续更新中......
 
-安卓安装包：https://wwx.lanzoux.com/iSITWxhw1jc
+安卓安装包：https://wwx.lanzoux.com/ilksYxjtlli
 
 windows安装包：https://wwx.lanzoui.com/iXNFpuz0nyh
 
@@ -15,7 +15,7 @@ windows安装包：https://wwx.lanzoui.com/iXNFpuz0nyh
 
 安卓界面：
 ![](https://p1.pstatp.com/origin/pgc-image/9725ae49842d4982a028f923ff0e1e9f)
-安卓安装包：https://wwx.lanzoux.com/iSITWxhw1jc
+安卓安装包：https://wwx.lanzoux.com/ilksYxjtlli
 
 ## 之所以能持续更新 ##
 是因为写了一个程序，能自动爬取1024免翻地址，可以持续不断更新，只要1024不倒，就可以一直更新！如果喜欢，请star我哦
