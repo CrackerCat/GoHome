@@ -1,21 +1,22 @@
 fast find me，快速找到回家的路，持续更新中......
 
-安卓安装包：https://wwd.lanzouf.com/iKBwV02u36uh
+安卓安装包：https://wwd.lanzoue.com/iQeC00912epc
 
 windows安装包：https://wwd.lanzouf.com/iKII9w8zcre
 
-1024面翻回家：<a href="https://cl.vkp2.icu/index.php">1024地址1</a> 
+1024面翻回家：<a href="https://cl.2305x.xyz/index.php">1024地址1</a> 
 
-91Pr面翻回家： <a href="https://f1113.wonderfulday27.live/index.php">91自拍站</a>	
+91Pr面翻回家： <a href="https://t0713.wonderfulday27.live/index.php">91自拍站</a>	
+
+安卓界面：
+![](https://1024shen.com/wp-content/uploads/2022/01/2022011714060442.jpg)
+安卓安装包：https://wwd.lanzoue.com/iQeC00912epc
 
 ## 开发了一个带界面的EXE程序，打开程序就会自动获取三个免翻地址，欢迎使用:
 Windows界面：
 ![](https://p1.pstatp.com/origin/pgc-image/5b1fce82a056446393be86d36b4b7ee9)
 windows安装包：https://wwd.lanzouf.com/iKII9w8zcre
 
-安卓界面：
-![](https://1024shen.com/wp-content/uploads/2022/01/2022011714060442.jpg)
-安卓安装包：https://wwd.lanzouf.com/iKBwV02u36uh
 
 ## 之所以能持续更新 ##
 是因为写了一个程序，能自动爬取1024免翻地址，可以持续不断更新，只要1024不倒，就可以一直更新！如果喜欢，请star我哦
