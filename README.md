@@ -8,6 +8,8 @@ windows安装包：https://wwd.lanzouf.com/iKII9w8zcre
 
 91Pr面翻回家： <a href="https://t0713.wonderfulday27.live/index.php">91自拍站</a>	
 
+加QQ：2950525265 或者微信：nongqi666 可以快速获得邀请码
+
 安卓界面：
 ![](https://1024shen.com/wp-content/uploads/2022/01/2022011714060442.jpg)
 安卓安装包：https://wwd.lanzoue.com/iQeC00912epc
